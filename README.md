@@ -1,4 +1,4 @@
-publish link: https://nxt9trenz.ccbp.tech
+publish link: https://nxt0trendz0gk.ccbp.tech/
 
 ### Completion Instructions
 
